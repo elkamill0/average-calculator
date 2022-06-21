@@ -1,0 +1,1 @@
+http://srednia.com.pl/
